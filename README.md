@@ -9,7 +9,7 @@ Ruana Martins
 
 17 anos
 
-Prefiro pizza do que seres humanos
+Prefiro pizza do que seres humanos (com exceção dos que fazem a pizza)
 
 
 # Jogos
